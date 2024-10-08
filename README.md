@@ -25,9 +25,9 @@ Erdem is a seasoned Global IT Contractor with a strong track record of collabora
 
 ## 🛠️ Top Skills
 
-- Amazon Route 53
-- Python (Programming Language)
-- Plugins
+- Cloud Computing
+- AI Based Python (Programming Language)
+- DevOps
 
 ## 🏆 Certifications
 
