@@ -8,7 +8,7 @@
 - **Phone:** +447848024173 (Work)
 - **Email:** [info@pexabo.com](mailto:info@pexabo.com)
 - **LinkedIn:** [linkedin.com/in/rifaterdemsahin](https://www.linkedin.com/in/rifaterdemsahin)
-- **Company Website:** [devops.engineering](https://www.devops.engineering/)
+- **Company:** DeliveryPilot
 - **Schedule a Meeting:** [Calendly](https://calendly.com/rifaterdem/schedule)
 - **Other Profiles:** [Superpeer](https://superpeer.com/rifaterdemsahin/)
 
