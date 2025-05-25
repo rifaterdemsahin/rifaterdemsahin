@@ -1,4 +1,4 @@
-# 🧑‍💻 Erdem Sahin - DevOps | Transformation Specialist | AI Consultant
+# 🧑‍💻 Erdem Sahin -  AI Solution Architect
 
 ---
 
