@@ -8,7 +8,7 @@ Here’s your info, now with emoji flair:
 
 * 📍 **Location:** Cambridge, UK 🇬🇧
 * 📞 **Phone (Work):** +44 7848 024 173
-* 📧 **Email:** [info@pexabo.com](mailto:info@pexabo.com)
+* 📧 **Email:** [contact@rifaterdemsahin.com](mailto:contact@rifaterdemsahin.com)
 * 🎥 **YouTube:** [https://www.youtube.com/@RifatErdemSahin](https://www.youtube.com/@RifatErdemSahin)
 * 🔗 **LinkedIn:** [linkedin.com/in/rifaterdemsahin](https://www.linkedin.com/in/rifaterdemsahin)
 * 🏢 **Company:** [DeliveryPilot](https://hello.rifaterdemsahin.com/pages/delivery-pilot.html)
