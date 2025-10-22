@@ -4,8 +4,6 @@
 
 ## 📞 Contact Information
 
-Here’s your info, now with emoji flair:
-
 * 📍 **Location:** Cambridge, UK 🇬🇧
 * 📞 **Phone (Work):** +44 7848 024 173
 * 📧 **Email:** [contact@rifaterdemsahin.com](mailto:contact@rifaterdemsahin.com)
