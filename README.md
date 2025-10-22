@@ -1,4 +1,4 @@
-# 🧑‍💻 Erdem Sahin -  AI Solution Architect
+# 🧑‍💻 Erdem Sahin -  AI Engineer
 
 ---
 
