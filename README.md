@@ -12,8 +12,6 @@
 * 🏢 **Company:** [DeliveryPilot](https://hello.rifaterdemsahin.com/pages/delivery-pilot.html)
 * 📅 **Schedule a Meeting:** [Calendly](https://calendly.com/rifaterdem/schedule)
 
-If you like, I can format this in signature style (for email, social media, etc.). Do you want me to do that?
-
 
 ---
 
