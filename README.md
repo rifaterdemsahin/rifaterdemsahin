@@ -4,14 +4,18 @@
 
 ## 📞 Contact Information
 
-- **Location:** Cambridge, UK 🇬🇧
-- **Phone:** +447848024173 (Work)
-- **Email:** [info@pexabo.com](mailto:info@pexabo.com)
-- **Youtube:** https://www.youtube.com/@RifatErdemSahin
-- **LinkedIn:** [linkedin.com/in/rifaterdemsahin](https://www.linkedin.com/in/rifaterdemsahin)
-- **Company:** DeliveryPilot
-- **Schedule a Meeting:** [Calendly](https://calendly.com/rifaterdem/schedule)
-- **Other Profiles:** [Superpeer](https://superpeer.com/rifaterdemsahin/)
+Here’s your info, now with emoji flair:
+
+* 📍 **Location:** Cambridge, UK 🇬🇧
+* 📞 **Phone (Work):** +44 7848 024 173
+* 📧 **Email:** [info@pexabo.com](mailto:info@pexabo.com)
+* 🎥 **YouTube:** [https://www.youtube.com/@RifatErdemSahin](https://www.youtube.com/@RifatErdemSahin)
+* 🔗 **LinkedIn:** [linkedin.com/in/rifaterdemsahin](https://www.linkedin.com/in/rifaterdemsahin)
+* 🏢 **Company:** [DeliveryPilot](https://hello.rifaterdemsahin.com/pages/delivery-pilot.html)
+* 📅 **Schedule a Meeting:** [Calendly](https://calendly.com/rifaterdem/schedule)
+
+If you like, I can format this in signature style (for email, social media, etc.). Do you want me to do that?
+
 
 ---
 
