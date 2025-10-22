@@ -7,6 +7,7 @@
 - **Location:** Cambridge, UK 🇬🇧
 - **Phone:** +447848024173 (Work)
 - **Email:** [info@pexabo.com](mailto:info@pexabo.com)
+- **Youtube:** https://www.youtube.com/@RifatErdemSahin
 - **LinkedIn:** [linkedin.com/in/rifaterdemsahin](https://www.linkedin.com/in/rifaterdemsahin)
 - **Company:** DeliveryPilot
 - **Schedule a Meeting:** [Calendly](https://calendly.com/rifaterdem/schedule)
