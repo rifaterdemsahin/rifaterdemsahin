@@ -32,11 +32,8 @@ Erdem is a seasoned Global IT Contractor with a strong track record of collabora
 
 ## 🏆 Certifications
 
-- Becoming an Unreal Automation Expert
-- MCPS: Microsoft Certified Professional
-- Learning IP Addressing
-- Microsoft Azure Service Fabric
-- AWS for DevOps: High Availability and Elasticity
+- Claude Certified Architect Professional
+- Microsoft Certified Professional
 
 ## 🏅 Honors & Awards
 
